@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TheWaxSculptor
-- 👀 I’m interested in ...
+- 👀 I’m interested in Music, Plants, Software & Game Dev
 - 🌱 I’m currently learning how to grow weed, languages 👀, and some other things
 - 💞️ I’m looking to collaborate on music
 - 📫 How to reach me Instagram http://instagram.com/yishaythewaxsculptor or http://thewaxsculptor.com
